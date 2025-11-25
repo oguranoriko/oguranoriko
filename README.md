@@ -1,5 +1,3 @@
-<p align="center">
-</p>
 <p align="center">  
 <img src="https://i.postimg.cc/cLHgZ2PY/top_div.png"/>
 <br>
@@ -7,11 +5,11 @@
 <br>
 <img src="https://i.postimg.cc/JnnH7gsF/middle_div.png"/>
 <br>
-txt
+୭ৎ BPD〜AutiSchizo〜Plural; IWC always
 <br>
-txt
+C + H = OKAY! ♫ No RP or copying ⋂⑅⋂
 <br>
-txt
+Freq. AFK ꗯ︵ Ints are ENCOURAGED! ♡
 <br>
 <img src="https://i.postimg.cc/JnnH7gsF/middle_div.png"/>
 <br>
