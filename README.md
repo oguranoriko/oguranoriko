@@ -11,6 +11,8 @@ C + H = OKAY! ♫ No RP or copying ⋂⑅⋂
 <br>
 Freq. AFK ꗯ︵ Ints are ENCOURAGED! ♡
 <br>
+໒꒰ྀིっ˕ -｡꒱ྀི১ IFB ; Main Accounts ONLY !
+<br>
 <img src="https://i.postimg.cc/JnnH7gsF/middle_div.png"/>
 <br>
 ꒰৯ ... And I will SAVE you ໒꒱‿︵‿︵‿︵‿
